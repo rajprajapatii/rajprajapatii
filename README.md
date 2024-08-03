@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Person
 - 📫 How to reach me Instagram :- i.rajprajapati
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... Wake Up to Realty
+- ⚡ Fun fact: ... consistency
 
 <!---
 rajprajapatii/rajprajapatii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
